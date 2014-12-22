@@ -32,7 +32,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-HOCUS POCUS JVNIOR. The Anatomy of LEGERDEMAIN. OR, The Art of Jugling set forth in his proper colou
+
 1. To the Reader.
 
 #####Body#####
